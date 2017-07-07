@@ -1,6 +1,7 @@
 # Iluminat7s
 Iluminat7s cryptocurrency discretion and privacy.
 Principal cryptocurrency Iluminat7s; "Solidarity and economy for all."
+
 First order:
 Iluminat7s is not immune to the Law of Fives, nor the Seventeen, nor the Twentythree enigmata.
 
@@ -10,10 +11,10 @@ Offering of Iluminat7s to Eris may bring illumination, offer with caution or don
 Third order: 
 Of each Iluminat7s (and there are twenty-three), one one thousandth is a single Ilums. Proper offering shall result in bestowation of milliChao which are tiny, very tiny indeed. Improper offering results in nil.
 
-Fourth order: 
-There is no Goddess but Goddess, and she is your Goddess.
+Seventh order:
+The true gods are closer, you do not proclaim to a god who gives you nothing.
 
-Fifth order:
-How wilt thou value Iluminat7s? Five tons of flax.  
+Eighth Order:
+To see, to hear and to be silent, finds happiness.
 
 See the fnords.
